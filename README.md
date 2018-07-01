@@ -1,2 +1,2 @@
 # haradam3.github.io
-My github page
+haradam3's github page under construction.
